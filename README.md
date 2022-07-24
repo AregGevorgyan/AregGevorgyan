@@ -1,1 +1,1 @@
-Hi, my Name is Areg Gevorgyan 👋
+Hi, my name is Areg Gevorgyan 👋
